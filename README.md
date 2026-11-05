@@ -8,4 +8,4 @@ AI Product Engineer in Paris. I design and build AI products with the people who
 
 Most of my recent code is private client work. Happy to walk through it on a call.
 
-[LinkedIn](https://www.linkedin.com/in/raoul-scalise/) · scaliseraoul00@gmail.com
+[LinkedIn](https://www.linkedin.com/in/raoul-scalise/) · [scaliseraoul.com](https://www.scaliseraoul.com) · scaliseraoul00@gmail.com
